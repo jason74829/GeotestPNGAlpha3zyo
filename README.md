@@ -1,1 +1,0 @@
-# GeotestPNGAlpha3zyo
